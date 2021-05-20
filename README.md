@@ -15,4 +15,3 @@
 [知乎](https://www.zhihu.com/people/li-xin-32-2)
 
 微信:y2690688423
-![wechat](wechat.jpg)
